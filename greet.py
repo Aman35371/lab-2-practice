@@ -1,1 +1,1 @@
-bugg
+goodbye, aman!
